@@ -8,6 +8,8 @@
 
 ● You have to apply [here](https://forms.gle/nLqPJHL1C9y1RxjR9).
 
+> PS: If we need players, moderators, or jobs we'll make a post about it. Then you can apply.
+
 ● Requirements: 3k-5k+ messages & 3-5hrs in VC on daily basis, good reputation on the server and also make sure to have proper knowledge of moderation.
 
 ` 2 ` How to boost the server? Boosting the server will give you a @OP Booster role. Boosting the server helps in increasing the server level which gives many features and perks to the server. If you don't know how to boost the server, [read this article](https://support.discord.com/hc/en-us/articles/360028038352-Server-Boosting-).
