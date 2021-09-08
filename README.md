@@ -8,7 +8,7 @@
 
 ● You have to apply [here](https://forms.gle/nLqPJHL1C9y1RxjR9).
 
-> PS: If we need players, moderators, or jobs we'll make a post about it. Then you can apply.
+> _PS: If we need players, moderators, or jobs we'll make a post about it. Then you can apply._
 
 ● Requirements: 3k-5k+ messages & 3-5hrs in VC on daily basis, good reputation on the server and also make sure to have proper knowledge of moderation.
 
