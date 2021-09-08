@@ -20,6 +20,8 @@
 
 ● Exclusive perms and channels.
 
+● Access to Dyno Afk Perms.
+
 ● In the top of the member list of the server.
 
 ` 4 ` Want to appeal a ban you received on the Divyansh Sood Official Discord Server? If so, you're in the right place! Here, you can quickly send us your appeal without needing to send a DM to a member of the Staff Team! [Click here to get ban appeal form](https://forms.gle/HtgWT4YFVaUJASTy6)!
