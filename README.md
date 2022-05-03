@@ -29,3 +29,7 @@
 ● In the top of the member list of the server.
 
 ` 4 ` Want to appeal a ban you received on the Divyansh Sood Official Discord Server? If so, you're in the right place! Here, you can quickly send us your appeal without needing to send a DM to a member of the Staff Team! [Click here to get ban appeal form](https://forms.gle/HtgWT4YFVaUJASTy6)!
+
+` 5 ` How to Place Order? Move to [#place-order](https://discord.com/channels/774866113888256004/938721235876065350) and Create ticket, designers will assist you and will try to get your order as soon as possible.
+
+`6 ` Want to see some Examples? Head towards [#receipts](https://discord.com/channels/774866113888256004/939101367073660978) where all are completed order's receipts being sent and a [<#▬▬▬▬▬EXAMPLES▬▬▬▬▬>](https://discord.com/channels/774866113888256004/952045523110592573) to see headers, banners, pfp, minecraft skins and other stuff.
