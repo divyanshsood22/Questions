@@ -1,4 +1,4 @@
-![Rules](https://user-images.githubusercontent.com/88816011/166412775-1e47edc6-bcd1-4a8f-a7fd-bb2235dd87ef.png)
+![FAQs](https://user-images.githubusercontent.com/88816011/166412969-69d469c1-ee33-4a4f-9076-7f0e629a5e34.png)
 
 # Questions
 
