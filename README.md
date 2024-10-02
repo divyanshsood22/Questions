@@ -6,11 +6,9 @@
 
 ` 1 ` How to apply for an official position? 🤔
 
-● You have to apply [here](https://forms.gle/nLqPJHL1C9y1RxjR9).
-
 > _PS: If we need players, moderators, or jobs we'll make a post about it. Then you can apply._
 
-● Requirements: 3k-5k+ messages & 3-5hrs in VC on daily basis, good reputation on the server and also make sure to have proper knowledge of moderation.
+● Requirements: 1k-2k+ messages & 1-2hrs in VC on daily basis, good reputation on the server and also make sure to have proper knowledge of moderation.
 
 ` 2 ` How to boost the server? Boosting the server will give you a @OP Booster role. Boosting the server helps in increasing the server level which gives many features and perks to the server. If you don't know how to boost the server, [read this article](https://support.discord.com/hc/en-us/articles/360028038352-Server-Boosting-).
 
@@ -24,7 +22,7 @@
 
 ● Access to GIfs and Sponsors Stuff.
 
-● Can bypass all requirements mentioned in [#giveaways](https://discord.com/channels/774866113888256004/842607377002004542).
+● Can bypass all requirements mentioned in [#giveaways](https://discord.com/channels/774866113888256004/917299788280651817).
 
 ● In the top of the member list of the server.
 
